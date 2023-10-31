@@ -1,4 +1,8 @@
 ### Hi there 👋
  
-iptv/ott engineer , guitar / harmonica player , watercolor painter,   off-road jeeper...
+iptv/ott system solution engineer ( 16 y exp) 
+
+like to playing guitar / harmonica ( blues & jazz ),
+painting watercolor,
+tralving via jeep...
 
