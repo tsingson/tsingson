@@ -1,11 +1,6 @@
 ### Hi there 👋
  
-iptv/ott system solution engineer ( 16 y exp) 
+16 yrs IPTV/OTT backend solution engineer via #postgres  #go #rust #typescript
 
-
-like to playing guitar / harmonica ( blues & jazz ),
-
-painting watercolor,
-
-tralving via jeep...
+old man with old jeep, harmonica , classic guitar,  Ink wash painting
 
