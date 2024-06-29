@@ -7,8 +7,8 @@
 ### 2024/06/30 update:
 
 
-***CSDN do not clone my account/ my profile / my blog...***
+***if someone clone my account /profile /blog, i will hunt the leader ***
 
 
-***if someone clone my account and my profile, i will hunt the leader and make some happen***
+ 
 
