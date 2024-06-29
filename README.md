@@ -2,5 +2,6 @@
  
 16 yrs IPTV/OTT backend solution engineer via #postgres  #go #rust #typescript
 
-old man with old jeep, harmonica , classic guitar,  Ink wash painting
+***CSDN do not clone my account/ my profile / my blog...***
+***if someone clone my account and my profile, i should kill some who lead the op***
 
