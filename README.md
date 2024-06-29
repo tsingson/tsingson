@@ -10,5 +10,5 @@
 ***CSDN do not clone my account/ my profile / my blog...***
 
 
-***if someone clone my account and my profile, i should kill someone who lead the op***
+***if someone clone my account and my profile, i will hunt the leader and make some happen***
 
