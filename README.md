@@ -4,10 +4,7 @@
 
 
 
-### 2024/06/30 update:
-
-
-***if someone clone my account /profile /blog, i will hunt the leader ***
+ 
 
 
  
