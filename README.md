@@ -1,6 +1,6 @@
 # Hi there 👋
  
-x yrs IPTV/OTT backend solution engineer via #postgres  #go #rust #typescript
+15 yrs IPTV/OTT backend solution engineer/ production manager, 0.5 yrs embedded system RTOS solution research...
 
 
 
